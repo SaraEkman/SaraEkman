@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-#### 🌱 I’m a frontend-developer student in the making.
+#### 🌱 I’m a frontend-developer.
 
 #### 👉 Take a look at my [projects](https://saraekman.github.io/My-projects/)
 
