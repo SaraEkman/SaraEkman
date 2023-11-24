@@ -6,4 +6,6 @@
 
 #### ⚡ What I like to do
  - Racing motorcycles 🏍️ & Cars 
+ - Passionate about taking the leap and embracing the skies 🪂
+   I'm an avid skydiver always ready for the next jump!
  - Play Hunt Showdown 💣 
